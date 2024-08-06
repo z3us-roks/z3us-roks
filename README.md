@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Z3US
+- 👀 I’m interested in Web-Dev,Music,graphics design
+- 🌱 I’m currently learning Web-Dev
+- 📫 You can always reach me through email z3us@outlook.in
+- 😄 Pronouns: He/Him
